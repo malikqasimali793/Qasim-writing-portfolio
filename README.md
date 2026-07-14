@@ -1,2 +1,1 @@
-# Qasim-writing-portfolio
-My writing portfolio:Blogs ,poetry, creative writing, editing samples.....
+I'm Qasim, a writer and editor focused on blogs, creative content, and poetry. I help brands and individuals tell clearer stories through well-researched articles and clean editing. This portfolio showcases my work in content writing, storytelling, and manuscript polishing.
